@@ -1,1 +1,1 @@
-To keep fit, you need to set aside about 1 hour a day for some workout and refreshing your mind and body regularly. To get the best result,it is the best to have about 5 to 10 minutes of intense exercise per each session. 
+To keep fit, you need to set aside about 1 hour a day for some workout and refreshing your mind and body regularly. To get the best result,it is the best to have about 8 to 12 minutes of intense exercise per each session. 
